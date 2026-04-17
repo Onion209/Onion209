@@ -53,7 +53,7 @@
 
 ---
 [![](https://visitcount.itsvg.in/api?id=NgocJQK&icon=0&color=0)](https://visitcount.itsvg.in)
-![](https://media0.giphy.com/media/3otPorWLQJq5GmHRtu/giphy.gif)
+![](https://giphy.com/gifs/cat-brighten-yourlaptop-aNqEFrYVnsS52)
 
 <a href=#><img src="contributions.svg"></a>
 
